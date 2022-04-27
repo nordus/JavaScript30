@@ -1,4 +1,4 @@
-﻿![](https://javascript30.com/images/JS3-social-share.png)
+﻿![🐵ᕗ ─=≡ΣO))](https://github.com/JesseManuelCastro30/JavaScript30)
 
 # JavaScript30
 
